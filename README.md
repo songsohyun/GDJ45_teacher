@@ -1,1 +1,0 @@
-# GDJ45_teacher
